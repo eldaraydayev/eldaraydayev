@@ -4,9 +4,9 @@
 - 💞️ I’m looking to collaborate on DeFin, Blockchain, Cloud Security
 - 📫 How to reach me
 
-Mobile: +1 (650) 419-1692  
-WhatsApp: +1 (512) 522-6148  
-Best time to take a call: Monday-Saturday [ 08:00 AM - 06:00 PM EST/EDT ]  
+The best time to take a call: is Monday-Saturday [ 08:00 AM - 06:00 PM EST/EDT ]  
+
+Mobile: +1 (650) 419-1692  [Voice / SMS / WhatsApp ]
 Skype: eldar.aydayev  
 Google meeting: eldar@aydayev.com  
 
