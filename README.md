@@ -6,7 +6,7 @@
 
 The best time to take a call: is Monday-Saturday [ 08:00 AM - 06:00 PM EST/EDT ]  
 
-Mobile: +1 (650) 419-1692  [Voice / SMS / WhatsApp ]
+Mobile: +1 (650) 419-1692  [Voice / SMS / WhatsApp ] 
 Skype: eldar.aydayev  
 Google meeting: eldar@aydayev.com  
 
